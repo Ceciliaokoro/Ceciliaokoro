@@ -10,5 +10,7 @@ Also, I enjoy touring. My physical and emotional health is positively affected b
 
 ## Connect with Me
 https://github.com/Ceciliaokoro
-https://www.linkedin.com/in/cecilia-okoro-81014b19a)https://www.linkedin.com/in/cecilia-okoro-81014b19a
+
+https://www.linkedin.com/in/cecilia-okoro-81014b19a
+
 https://www.instagram.com/ceciliaokoro/
